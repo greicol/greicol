@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @greicol
+- 👀 I’m interested in Design and creativity
+- 🌱 I’m currently learning About UX/UI design
+- 💞️ I’m looking to collaborate on Creatives around the world
+- 📫 How to reach me Through my email: greta.iglesias@gmail.com
+- 😄 Pronouns: She
+- ⚡ Fun fact: I'm a fan of dinosaurs, Jurassic Park, bunnies, and chocolate
